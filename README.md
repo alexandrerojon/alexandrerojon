@@ -6,4 +6,3 @@
 - 💬 Ask me about motorcycles, fitness & R6!
 - 📫 How to reach me: alexandre.rojon@gmail.com
 
-- ⚡ Fun fact: I have a physical inability to refuse tiramisu.
